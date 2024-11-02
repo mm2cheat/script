@@ -1,1 +1,2 @@
-# script
+# BEST AUTO FARM SCRIPT 🎃
+
